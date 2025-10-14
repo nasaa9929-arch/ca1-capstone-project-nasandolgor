@@ -1,2 +1,2 @@
-# ca1-capstone-project-nasandolgor
+# Strategic Thinking  ca1-capstone-project-nasandolgor
 CA
